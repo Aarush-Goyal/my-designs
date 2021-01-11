@@ -1,4 +1,4 @@
-# Hey D Thompson
+# Hey Visitor
 
 - I have been designing for a year.
 
